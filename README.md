@@ -1,7 +1,5 @@
 # 🚀 **SAVICH18 -BIO**  
 > 💻 WORK,WORK,WORK.  
-![Coding GIF](https://i.postimg.cc/yNQVxDjg/1488792846146085519.gif)
-
 ---
 
 ## 🧑‍💻 **ОБО МНЕ**H
