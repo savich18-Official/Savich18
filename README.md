@@ -1,6 +1,6 @@
 # 🚀 **SAVICH18 -BIO**  
 > 💻 WORK,WORK,WORK.  
-<img src="<a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/yNQVxDjg/1488792846146085519.gif' border='0' alt='1488792846146085519'/></a>" alt="Coding GIF" width="800">
+<img src="<a href='https://i.postimg.cc/yNQVxDjg/1488792846146085519.gif' border='0' alt='1488792846146085519'/></a>" alt="Coding GIF" width="800">
 
 ---
 
